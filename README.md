@@ -1,2 +1,3 @@
 # ItsAGas
-Baby, can you dig it?
+Grazing in the grass is a gas,
+baby, can you dig it?
